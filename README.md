@@ -1,6 +1,6 @@
 # 24K Magic - Bruno Mars
 
-[KILLER POSTER! - click view on Github Pages.](https://sandeepgangaram.github.io/24K-magic/)
+[KILLER POSTER! - click here to view on Github Pages.](https://sandeepgangaram.github.io/24K-magic/)
 
 ## lyrics
 
