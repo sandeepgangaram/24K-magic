@@ -1,5 +1,7 @@
 # 24K Magic - Bruno Mars
 
+[Click Here for the Custom POSTER - LOL](https://sandeepgangaram.github.io/24K-magic/)
+
 ## lyrics
 
 ---
